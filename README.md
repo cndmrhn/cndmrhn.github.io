@@ -1,2 +1,1 @@
-# sayfa
-
+# Begendiysen bitir oglum... #
